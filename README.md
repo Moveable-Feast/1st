@@ -1,2 +1,7 @@
 # README
-Mathematics in Detail
+个人观点
+想法单纯
+推理随性
+叙述简略
+纯纯自己写着乐呵
+其他读者别太较真
